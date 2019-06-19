@@ -1,1 +1,0 @@
-# NayCS.github.io 
